@@ -1,5 +1,5 @@
 # Hi, I'm Abdul Samad 👋
-**Full Stack Developer | AI Engineer at Power of Million | Mobile Web Application Developer**
+**Full Stack Developer | AI Engineer at Power of Million | Mobile & Web Application Developer**
 
 Email Me ✉️ **abdulsamadalvi73@gmail.com** For Project or Anything Else. 😊
 
